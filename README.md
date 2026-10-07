@@ -1,0 +1,2 @@
+# sasa
+menabung pangkal kaya
